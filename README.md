@@ -45,6 +45,8 @@ Ca 3000 Einheiten Vitamin D alleine
 1 Mucosa Formula
 
 3 Bio Gerstengras Kapseln
+
+1 TL Spirulina
 _________
 
 # Gute Nahrungsmittel für jeden Tag
